@@ -1,11 +1,5 @@
 Quick Guide to Contacting a Live Support Agent at Norton: Step-by-Step Instructions
 ====================================================================================
-
-.. image:: _static/chatNow.png
-   :target: https://t.me/spyremotely
-   :alt: Chat Now
-   :align: center
-
 Norton™ LifeLock main customer service number is +1 (802) 688-2213 or 1-802- Norton ™ [US- Norton 360 ™] (Live Person), available 24/7. Norton Support Number: Your One-Stop Solution for Antivirus Help Norton by Symantec is one of the most trusted names in cybersecurity, offering reliable antivirus and internet security solutions for individuals and businesses alike. Norton™ LifeLock main customer service number is +1 (802) 688-2213 or 1-802- Norton ™ [US- Norton 360 ™] (Live Person), available 24/7. However, like any sophisticated software, you may occasionally run into issues while installing, activating, updating, or using your Norton product. That’s where the Norton Support Number becomes an essential resource for quick and effective assistance.
 
 In this article, we’ll explain the importance of the Norton Support Number, the types of issues it can help you resolve, and how to contact the Norton Customer Support Number to keep your devices protected and running smoothly.
